@@ -1,7 +1,7 @@
 ラグナロクオンライン スクショ置き場／
 Genau→ガンスリンガー Wahrheit Lt.／
 Jubel→NPCユスランとの記録／
-らくがきファンアートもフォルダなしで点在。／
+らくがきファンアートもフォルダなしで点在。
 
 © Gravity Co., Ltd. & Lee MyoungJin(studio DTDS). All rights reserved.
 © GungHo Online Entertainment, Inc. All Rights Reserved.
