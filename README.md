@@ -1,6 +1,6 @@
 ラグナロクオンライン スクショ置き場／
-Genau→ガンスリンガー Wahrheit Lt.（メイン）／
-Denken→ナイトウォッチ Wahrheit C in C／
+Genau→ガンスリンガー（メイン）／
+Denken→ナイトウォッチ／
 Jubel→NPCユスランとの記録／
 らくがきファンアートもフォルダなし直置きで点在。
 
